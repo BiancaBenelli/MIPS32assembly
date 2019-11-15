@@ -1,1 +1,1 @@
-# Ciao a tutti ... ben venuti
+# Ciao a tutti ... benvenuti (tranne Bruno)
